@@ -1,1 +1,1 @@
-#Lauren Johnston's Notes
+#Lauren's Notes
